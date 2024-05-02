@@ -2,7 +2,7 @@
 																																																			                        
 						                                                                        Max the dog is an intelligent piece of software
 									                                 
-					    ![image](https://github.com/GirafeZerius/uselessthings/assets/118310578/0b18f60a-625a-4fc9-a768-87f036d8a199)
+![image](https://github.com/GirafeZerius/uselessthings/assets/118310578/525569c1-5ce8-4648-a26b-1099c6406830)
 
                              
 					                                                       
