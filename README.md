@@ -1,7 +1,8 @@
                                                                                                                                   # [Download max the dog now!]
 																																																			                        
 						                                                                        Max the dog is an intelligent piece of software
-									                                   I can sing  ![image](https://github.com/GirafeZerius/uselessthings/assets/118310578/0b18f60a-625a-4fc9-a768-87f036d8a199)
+									                                   I can sing  
+					    ![image](https://github.com/GirafeZerius/uselessthings/assets/118310578/0b18f60a-625a-4fc9-a768-87f036d8a199)
 
                              
 					                                                                   I can talk                                                    I can help you browse the web!
